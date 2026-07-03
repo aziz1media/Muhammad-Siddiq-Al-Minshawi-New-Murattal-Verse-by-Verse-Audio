@@ -12,8 +12,8 @@ Every file has been processed carefully so that the recitation begins immediatel
 
 Download the latest version:
 
-- **[Download 128 kbps (≈1.58 GB)](https://github.com/aziz1media/Muhammad-Siddiq-Al-Minshawi-New-Murattal-Verse-by-Verse-Audio-/releases/latest/download/Muhammad-Siddiq-Al-Minshawi-New-Murattal-Verse-by-Verse-128kbps.zip)**
-- **[Download 64 kbps (≈815 MB)](https://github.com/aziz1media/Muhammad-Siddiq-Al-Minshawi-New-Murattal-Verse-by-Verse-Audio-/releases/latest/download/Muhammad-Siddiq-Al-Minshawi-New-Murattal-Verse-by-Verse-64kbps.zip)**
+- **[Download 128 kbps (≈1.58 GB)](https://github.com/aziz1media/Muhammad-Siddiq-Al-Minshawi-New-Murattal-Verse-by-Verse-Audio/releases/latest/download/Muhammad-Siddiq-Al-Minshawi-New-Murattal-Verse-by-Verse-128kbps.zip)**
+- **[Download 64 kbps (≈815 MB)](https://github.com/aziz1media/Muhammad-Siddiq-Al-Minshawi-New-Murattal-Verse-by-Verse-Audio/releases/latest/download/Muhammad-Siddiq-Al-Minshawi-New-Murattal-Verse-by-Verse-64kbps.zip)**
 
 ---
 
